@@ -1,0 +1,1 @@
+# De_microincentivos_a_macroresultados_Actividad_6_Regresi-n_Lineal
